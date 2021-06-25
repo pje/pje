@@ -1,2 +1,1 @@
-![this_is_fine_dog_firefighter_rescue](https://user-images.githubusercontent.com/319655/119162967-f5c94a80-ba28-11eb-8961-898de5a9abf0.gif)
-
+![sobbing_mathematically](https://user-images.githubusercontent.com/319655/123445793-40009700-d5a6-11eb-868c-d6827c6de7d0.jpg)
