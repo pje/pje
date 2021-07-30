@@ -1,1 +1,1 @@
-![sobbing_mathematically](https://user-images.githubusercontent.com/319655/123445793-40009700-d5a6-11eb-868c-d6827c6de7d0.jpg)
+<img src="https://user-images.githubusercontent.com/319655/127670622-74abdc8f-067e-4917-9571-d5cd41229e5a.jpg" width=500 height=500>
